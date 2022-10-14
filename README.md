@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Dhaval Vasveliya
-- Curretnly working as an IT Developer at Canada Revnue Agency
+- 💼 Curretnly working as an IT Developer at Canada Revnue Agency
 - 👀 I’m interested in Cloud Technologiesa and DevOps
 - 📫 You can reach me out at vasveliyadhaval04@gmail.com
 
